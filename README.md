@@ -2,9 +2,12 @@
 # **Xiaoyu Zhang**
 
 Flat D, 45 Kelvinhaugh Street, Glasgow G38PE  
-  xy.zhang95@outlook.com  
-  +44 07529185509  
-  10th August 1995, Shiyan (China) 
+
+xy.zhang95@outlook.com  
+
++44 07529185509  
+  
+10th August 1995, Shiyan (China) 
 
 ---
 
